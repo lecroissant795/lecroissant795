@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm just a guy who likes coding and data
+I'm just a guy who likes coding and data, and croissant 🥐
 
 
 ## 🌐 Socials:

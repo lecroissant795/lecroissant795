@@ -1,5 +1,5 @@
 # 💫 About Me:
-Student at the University of Auckland<br>Major in Business Analytics<br>I'm just a guy who likes coding and data
+I'm just a guy who likes coding and data
 
 
 ## 🌐 Socials:
